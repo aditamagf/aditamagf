@@ -68,8 +68,9 @@ I'm always open to collaboration and new opportunities. Whether it's working on 
 
 - 🌐 Portfolio: https://aditdev.id
 - 📧 Email: business@aditdev.id
-- 🔗 Instagram: https://instagram.com/aditamagf
-- 🔗 Facebook: https://facebook.com/aditdev23
+- 🔗 Instagram: https://instagram.com/aditamagf (Verified)
+- 🔗 Facebook: https://facebook.com/aditamagf
+- 🔗 WhatsApp: https://wa.me/628159086666 (Verified)
 - 🔗 Telegram: https://t.me/aditdevid
 
 Let's build amazing web experiences together! 🚀
